@@ -4,3 +4,6 @@ List of characters:
 Tom Holland
 Emma Stone
 Nick Jonas
+Anne Has A Way
+Mark And Reason
+Jeff Bay O's
